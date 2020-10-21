@@ -10,6 +10,8 @@ Work hard for your dreams, be disciplined and persevering, leave the past behind
 run and fly for your dreams. Every day you have a new opportunity! Don't be afraid of time, 
 because it's never too late!
 
-
+"A dream is not that what you see in sleep, the dream is something that does not let you sleep.”
+When we dream we should also make efforts to make a dream into reality otherwise it is foolishness and a waste of time. 
+Nothing great has been achieved without hard work
 
 
