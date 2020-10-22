@@ -1,4 +1,4 @@
-@# The sky is not the limit 
+#The sky is not the limit #
 The old saying goes "the sky is the limit", but actually, there is no limit. 
 The only limit is your mind. 
 
@@ -11,7 +11,7 @@ run and fly for your dreams. Every day you have a new opportunity! Don't be afra
 because it's never too late!
  
  Everyone has a story. Some are blissful, while others are tragic. Mine,
- on the other hand, is full of triumph. 
+on the other hand, is full of triumph. 
 I desire to share my experiences with the hope that more people will feel empowered 
 to endure difficult times and continue to fight for their dreams.
 Sure there were times when I wanted to give up, 
