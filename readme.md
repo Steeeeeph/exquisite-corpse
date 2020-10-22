@@ -16,10 +16,9 @@ I desire to share my experiences with the hope that more people will feel empowe
 to endure difficult times and continue to fight for their dreams.
 Sure there were times when I wanted to give up, 
 but I made a choice to overcome my challenges,
- believe in a prosperous future, and motivate others to do the same.
- The Sky is NOT the limit! There are NO limits in life
+believe in a prosperous future, and motivate others to do the same.
+The Sky is NOT the limit! There are no limits in life
  
  
 
 
-_ismi_
